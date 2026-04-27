@@ -141,4 +141,4 @@ Continued use of the App means you accept the updated policy.
 
 If you have questions about this Privacy Policy, please contact:
 
-support@sunnysteps.app
+sunnysteps.support@gmail.com

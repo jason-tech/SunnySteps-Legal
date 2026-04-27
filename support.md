@@ -2,7 +2,7 @@
 
 If you need help, contact:
 
-support@sunnysteps.app
+sunnysteps.support@gmail.com
 
 We’ll respond as soon as possible.
 

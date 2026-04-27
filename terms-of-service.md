@@ -151,7 +151,7 @@ These Terms are governed by the laws of Ontario, Canada, without regard to confl
 
 If you have questions about these Terms, please contact:
 
-support@sunnysteps.app
+sunnysteps.support@gmail.com
 
 ---
 
